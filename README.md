@@ -1,5 +1,5 @@
 ## 👋 Hello! Welcome to my Github profile.
-### My name is SeuNomeAqui and my nickname is The1g0rL!
+### My name is Igor and my nickname is The1g0rL!
 
 
 <div>
