@@ -1,6 +1,4 @@
 ## 👋 Hello! Welcome to my Github profile.
-### My name is Igor and my nickname is The1g0rL!
-
 
 <div>
 <a href="https://github.com/The1g0rL">
